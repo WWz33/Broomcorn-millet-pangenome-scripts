@@ -1,0 +1,1 @@
+Chen, J., Liu, Y., Liu, M. et al. Pangenome analysis reveals genomic variations associated with domestication traits in broomcorn millet. Nat Genet 55, 2243–2254 (2023). https://doi.org/10.1038/s41588-023-01571-z
